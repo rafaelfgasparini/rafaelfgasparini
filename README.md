@@ -11,4 +11,4 @@ rafael.gasparini@escola.pr.gov.br
 
 @rafaelg
 
-![descrição do GIF](link GIF do Tenor)
+![descrição do GIF](https://tenor.com/pt-BR/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383)
