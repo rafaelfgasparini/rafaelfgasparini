@@ -11,4 +11,4 @@ rafael.gasparini@escola.pr.gov.br
 
 @rafaelg
 
-![.]( https://media.tenor.com/OyLBNsqN1LQAAAAd/copa-do.gif)
+![](https://media.tenor.com/OyLBNsqN1LQAAAAd/copa-do.gif)
