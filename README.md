@@ -9,4 +9,5 @@ Meu nome é ʀᴀғᴀᴇʟ ɢᴀsᴘᴀʀɪɴɪ
 ### Você pode entrar em contato comigo 📫
 rafael.gasparini@escola.pr.gov.br
 
+![.](https://tenor.com/pt-BR/view/copa-do-brasil-gomez-libertadores-gif-20705994)
 @rafaelg
